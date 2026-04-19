@@ -2,7 +2,11 @@
 纸飞机找资源群的方法和渠道
  <b>纸飞机找万能搜索频道其实很简单，首先先科学上网，不然打不开
   
-你需要下载纸飞机，也就是Telegram，然后就是找万能搜索频道，今天给大家推荐可靠的频道。&nbsp;<br /></b><b>&nbsp;。</b></b><br /></b><b>&nbsp;SOSO搜搜：<a href="https://t.me/soso?start=a_7278846973">https://t.me/soso?start=a_7278846973</a>&nbsp;</b></span></h4><h4 style="text-align: left;"><span style="font-family: georgia;"><b><br /></b><b>极搜JiSo： <a href="https://t.me/jisou?start=a_7278846973">t.me/jisou?start=a_7278846973&nbsp;</a></b></span></h4><h4 style="text-align: left;"><span style="font-family: georgia;"><b><a href="https://t.me/jisou?start=a_7278846973"><br /></a></b><b>
+你需要下载纸飞机，也就是Telegram，然后就是找万能搜索频道，今天给大家推荐可靠的频道。&nbsp;<br /></b><b>&nbsp;。</b></b><br /></b><b>&nbsp;<b><br /></b><b>
+
+中文资源搜索群：https://t.me/xueyuuqbot/
+
+极搜JiSo： <a href="https://t.me/jisou?start=a_7278846973">t.me/jisou?start=a_7278846973&nbsp;</a></b></span></h4><h4 style="text-align: left;"><span style="font-family: georgia;"><b><a href="https://t.me/jisou?start=a_7278846973"><br /></a></b><b>
 
 其实玩转纸飞机这两个搜索频道就能满足你的一切需求，纸飞机是没有中文版本的，随便加入一个搜索频道，发送中文包就会给你推送，点它就可以设置中文版本。
 
